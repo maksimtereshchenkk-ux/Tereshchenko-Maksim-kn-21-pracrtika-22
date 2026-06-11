@@ -1,0 +1,1 @@
+# Tereshchenko-Maksim-kn-21-pracrtika-22
